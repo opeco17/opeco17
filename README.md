@@ -4,4 +4,4 @@
 
 - 🔭 DevOps engineer at Rakuten Group, Inc.
 - 🎨 Like drawing ([pixiv](https://www.pixiv.net/users/44422398)) and watching anime
-- 🤗 Feel free to contact me from [LinkedIn](https://www.linkedin.com/in/yuto-y-0bb30020b/)
+- ✌️ Feel free to contact me from [LinkedIn](https://www.linkedin.com/in/yuto-y-0bb30020b/)
